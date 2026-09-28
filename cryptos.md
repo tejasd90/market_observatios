@@ -3,3 +3,4 @@
 - markets going down, could breach the levels fro tomorrow's monthly expiry. If it happens bu tomorrow, huge trades would be possible
 - A roughly symmetric wedge( roughly equal slope from both lines) is formed in ETH 12h timeframe. Both lines about to intersect meaning wedge about to break. Personally I am biased for an upside breakout which would be momentum continuation of the uptrend(visible on daily and weekly timeframes). Too many reversal attempts(news based or not) have been absorbed and markets have kept going higher and higher albeit slowly.
 - cryptos have tied themselves to gold, have been observing this for a lot of days, both move together, although cryptos move more in same direction as gold. 82800 seems crutial level for BTC, if this broken, then can go to 80k.
+- hourly pattern just formed is not a good one. Inverted hammer at 05.30, then hammer now at 10.30. It signifies a range, hard to break, less likely to give a 1:100 now.
