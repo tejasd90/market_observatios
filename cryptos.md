@@ -12,3 +12,6 @@
 - <img width="1427" height="683" alt="Screenshot 2026-10-02 at 6 51 17 PM" src="https://github.com/user-attachments/assets/14afc14f-aac6-4332-8311-293224a66791" />
 this hairyness in the last candle making it difficult to view this will breakout, and of course difficult for the market. The breakout needs to happen quickly for the momentum to go to further highs. If the candle closes like this, then it would form triple top and imminent breakout difficult.
 - Although it is weekend(slight possibility that it is BECAUSE of weekend so as to trap, although I doubt it), market seems to be making clean patterns on higher timeframes for upside breakout, especially SOL. Lets wait and watch. My gut feeling is that this week(or max next week), we should see 90k BTC broken.
+- <img width="1443" height="694" alt="Screenshot 2026-10-05 at 9 43 02 AM" src="https://github.com/user-attachments/assets/ed4d9c89-c4a1-487b-97e6-2a4dd6efd6d4" />
+<img width="1472" height="625" alt="Screenshot 2026-10-05 at 9 44 43 AM" src="https://github.com/user-attachments/assets/1a6a304f-03c2-492b-a79c-58a301105b60" />
+  2 wedges i can see. The first one(lower timeframe one) is also kind of a flag.
