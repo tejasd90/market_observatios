@@ -15,3 +15,6 @@ this hairyness in the last candle making it difficult to view this will breakout
 - <img width="1443" height="694" alt="Screenshot 2026-10-05 at 9 43 02 AM" src="https://github.com/user-attachments/assets/ed4d9c89-c4a1-487b-97e6-2a4dd6efd6d4" />
 <img width="1472" height="625" alt="Screenshot 2026-10-05 at 9 44 43 AM" src="https://github.com/user-attachments/assets/1a6a304f-03c2-492b-a79c-58a301105b60" />
   2 wedges i can see. The first one(lower timeframe one) is also kind of a flag.
+- <img width="1442" height="696" alt="Screenshot 2026-10-07 at 9 28 05 AM" src="https://github.com/user-attachments/assets/70b10f2e-434d-468c-9b3a-2978f4e1144a" />
+<img width="1455" height="714" alt="Screenshot 2026-10-07 at 9 29 56 AM" src="https://github.com/user-attachments/assets/28eacf71-b70e-4bec-95ed-c56b25b77877" />
+So the trendline was broken this morning. The reaching till 87-88k upmove was a trap. Trap often happen during weekends, I was wrong to consider that as a genuine move. However I did realize this after it transitioned immediately into the range on Monday morning 0530 candle(the range was not clear then). I was able to reverse the trap+range losses when I captured the trendline break.
