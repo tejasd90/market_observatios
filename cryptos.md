@@ -35,3 +35,4 @@ this hairyness in the last candle making it difficult to view this will breakout
 - weekly view changed to short. looks like headed to 80k
 - 81k and 2.5k not broken, saw reversing before that. If sustains, view would revert to long.
 - ETH made 2 wall like upthrust in hourly chart, one 10th Oct 19:30 candle, another 11th Oct 20:30 candle. And both were not reversed. Again, caveat that both were over the weekendz but still. Although selling pressure is there currently, until both taken out, bias is long. These are strong moves in my opinion, I saw such moves just before Aug 19-21 breakout in BTV. Kind-of made in BTC right over this weekend also, but they were reversed.
+- 6 consecutive red candles on 2h timeframe in both ETH and BTC(6th is ongoing) should mean something.
