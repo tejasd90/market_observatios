@@ -40,4 +40,7 @@ this hairyness in the last candle making it difficult to view this will breakout
 - <img width="1129" height="574" alt="Screenshot 2026-10-14 at 8 09 30 PM" src="https://github.com/user-attachments/assets/a4739a2e-ec71-4162-a8a0-1b53ceb645c2" />
 maybe this is the story for this weekly expiry. option chart looks good for breakdown.
 - <img width="1439" height="574" alt="Screenshot 2026-10-14 at 9 04 42 PM" src="https://github.com/user-attachments/assets/0ac3ffa4-13b7-4da3-b38f-9d147480a42e" />
-could become option buying hurdle for current expiry
+  could become option buying hurdle for current expiry
+- <img width="1424" height="691" alt="Screenshot 2026-10-14 at 9 51 52 PM" src="https://github.com/user-attachments/assets/45656d4d-eb8e-4e84-82be-f58009d1e17e" />
+  looks like the line has even bigger support. if breaks, could be bigger fall, and thats why was so vehemently defended. Only question is if and when will it break.
+
