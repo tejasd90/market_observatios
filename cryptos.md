@@ -43,4 +43,5 @@ maybe this is the story for this weekly expiry. option chart looks good for brea
   could become option buying hurdle for current expiry
 - <img width="1424" height="691" alt="Screenshot 2026-10-14 at 9 51 52 PM" src="https://github.com/user-attachments/assets/45656d4d-eb8e-4e84-82be-f58009d1e17e" />
   looks like the line has even bigger support. if breaks, could be bigger fall, and thats why was so vehemently defended. Only question is if and when will it break.
-
+- <img width="1432" height="673" alt="Screenshot 2026-10-14 at 10 12 39 PM" src="https://github.com/user-attachments/assets/359cdcf9-22b1-4ff7-b3d8-1550c082c26b" />
+  Same was observed in BTC. And although the trendline broke in both BTC and ETH, quickly reversed mostly, didn't continue the steep fall. I guess BTC breaking 80k is a bigger deal, and bulls are defending it more, as it would cause news. Such level break times are MOST VULNERABLE from trader's perspective, as exiting the trade causes huge FOMO. Only from experience was I able to let go of my trade. The toughest part of my entire trading journey has not been strategy, or even SL, but booking profits, and targets.
